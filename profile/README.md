@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+If you do not see the repo you are looking for, contact Aleksandr for the access.
+
 <!--
 
 **Here are some ideas to get you started:**
